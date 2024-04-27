@@ -1,4 +1,4 @@
-nama : aryadi solihin
+saya aryadi solihin,
 terbiasa dan ahli dalam mesin jahit, obras, dan overdeck
 dapat memperbaiki mesin jahit
 bekerja dalam tim, dapat beradaptasi dengan mudah 
